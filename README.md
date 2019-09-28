@@ -1,0 +1,1 @@
+# sprawdzianGit_1
